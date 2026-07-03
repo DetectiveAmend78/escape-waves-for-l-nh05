@@ -1,4 +1,4 @@
-# 
+# premium Scripts for escape waves for lucky blocks is the best escape waves for lucky blocks Script, featuring no cooldown and speed. Safe and
 
 
 
